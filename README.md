@@ -3,7 +3,7 @@
 <p>&nbsp;</p>
 <h2><strong><a href="https://fitbreathing.com/recommends/greeny-slim-de/">➾➾ Schnellkauf &ndash; Begrenzter Lagerbestand (DE, AT, CH)</a></strong></h2>
 <p>&nbsp;</p>
-<p><a href="https://fitbreathing.com/recommends/greeny-slim-de/"><img src="https://storage.penzu.com/g/oMaJjh1RwCfEs2qZ" alt="" border="0" /></a></p>
+<p><a href="https://fitbreathing.com/recommends/greeny-slim-de/"><img src="https://storage.penzu.com/g/s6yVHkeUbtHEfxfJ" alt="" /></a></p>
 <p>&nbsp;</p>
 <h3><strong>&Uuml;ber Greeny Slim &Ouml;sterreich:</strong></h3>
 <p>&nbsp;</p>
